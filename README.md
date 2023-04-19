@@ -1,0 +1,1 @@
+# Alokator_Pamieci
